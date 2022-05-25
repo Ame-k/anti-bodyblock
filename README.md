@@ -10,8 +10,3 @@ after everyone is inside the dungeon or whatever, 10/10 instructions no one gonn
 Barely tested mod.
 
 
-want to support my awful mods?
-
-https://ko-fi.com/G2G372NE
-
-can't even make a proper button
